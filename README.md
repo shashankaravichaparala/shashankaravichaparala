@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on  amazon
 - 🤔 I’m looking for help with programming skills
 - 💬 Ask me about cricket
-- 📫 How to reach me: haparalashashanksunny@gmail.com
+- 📫 How to reach me: chaparalashashanksunny@gmail.com
 - 😄 Pronouns: 
 - ⚡ Fun fact:  youtube
 -->
